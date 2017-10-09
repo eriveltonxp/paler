@@ -1,0 +1,2 @@
+# paler
+criptomoeda avançada
